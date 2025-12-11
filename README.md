@@ -23,7 +23,9 @@ Not exactly DNI but if you're younger than 14, I will not add you friend. Yet ta
 
 Mutiny duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358518267838484/Screenshot_20251210_195706_Gallery.jpg?ex=693ba13b&is=693a4fbb&hm=cf545acc910648d7de88affab91c304fe99384568b4d945c25946641135b78cc&)
 
-Tax duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358517755875501/Untitled64_202511111409471.png?ex=693ba13b&is=693a4fbb&hm=08ee70838bdb9c47c275b59ca887b29912310d5c144c78ab777121ea4d3bb685&) ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358519307894788/Screenshot_20251123_211637_Chrome.jpg?ex=693ba13c&is=693a4fbc&hm=9b881b817992c5eb14e113fb0ef98cac57246cedc2ecf268d33f3a259af9122d&)
+Tax duo 
+
+![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358517755875501/Untitled64_202511111409471.png?ex=693ba13b&is=693a4fbb&hm=08ee70838bdb9c47c275b59ca887b29912310d5c144c78ab777121ea4d3bb685&) ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358519307894788/Screenshot_20251123_211637_Chrome.jpg?ex=693ba13c&is=693a4fbc&hm=9b881b817992c5eb14e113fb0ef98cac57246cedc2ecf268d33f3a259af9122d&)
 
 Torchflower duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358518712172754/Screenshot_20251126_234719.jpg?ex=693ba13c&is=693a4fbc&hm=209df910736207411ab945d2b6424aac29ef5e419df5dbeb0e7cedd21eecb5fe&) ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448647129743757466/Screenshot_20251125_101253_jp.ne.ibis.ibispaintx.app_edit_467149855027625.jpg?ex=693c0546&is=693ab3c6&hm=9854d20d2551e02ff7f6b18f740ec1b3dac78592af943c207ea93cfb031967b0&)
 
