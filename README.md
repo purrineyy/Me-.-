@@ -21,13 +21,13 @@ Not exactly DNI but if you're younger than 14, I will not add you friend. Yet ta
 ### Now some duos that are my favorites!!
 [and little doodles of em]
 
-Mutiny duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358518267838484/Screenshot_20251210_195706_Gallery.jpg?ex=693ba13b&is=693a4fbb&hm=cf545acc910648d7de88affab91c304fe99384568b4d945c25946641135b78cc&)
+Mutiny duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358518267838484/Screenshot_20251210_195706_Gallery.jpg?ex=695fe27b&is=695e90fb&hm=75527c4cc09ec3f61974993e88a4ab0efbac997376573b47dcd83dfea6932b3c&)
 
 Tax duo 
 
-![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358517755875501/Untitled64_202511111409471.png?ex=693ba13b&is=693a4fbb&hm=08ee70838bdb9c47c275b59ca887b29912310d5c144c78ab777121ea4d3bb685&) ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358519307894788/Screenshot_20251123_211637_Chrome.jpg?ex=693ba13c&is=693a4fbc&hm=9b881b817992c5eb14e113fb0ef98cac57246cedc2ecf268d33f3a259af9122d&)
+![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358519307894788/Screenshot_20251123_211637_Chrome.jpg?ex=695fe27c&is=695e90fc&hm=556971dff353f66b2140037265bf98b50a83dd404e78308a652e95fd6f83908f&)
 
-Torchflower duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358518712172754/Screenshot_20251126_234719.jpg?ex=693ba13c&is=693a4fbc&hm=209df910736207411ab945d2b6424aac29ef5e419df5dbeb0e7cedd21eecb5fe&) 
+Torchflower duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358518712172754/Screenshot_20251126_234719.jpg?ex=695fe27c&is=695e90fc&hm=56fe8374751d3f66cdae7a41ccdf0b2feb44d35e5dad9bf24c891817c7229c69&) ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448647129743757466/Screenshot_20251125_101253_jp.ne.ibis.ibispaintx.app_edit_467149855027625.jpg?ex=695f9dc6&is=695e4c46&hm=d3c10e19d2db3b8a7046093b54666eaf394dcbf0a10f5b9d180d44a574c80403&)
 
 Odyssey duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358517277982742/Untitled71_202511221338533.png?ex=695fe27b&is=695e90fb&hm=2551166fcd3c3cfa9500d50d9f4cbe1e6aac59c178d2b8a695bf9cc913a7b8f2&)
 
