@@ -29,7 +29,7 @@ Tax duo
 
 Torchflower duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358518712172754/Screenshot_20251126_234719.jpg?ex=693ba13c&is=693a4fbc&hm=209df910736207411ab945d2b6424aac29ef5e419df5dbeb0e7cedd21eecb5fe&) 
 
-Odyssey duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358517277982742/Untitled71_202511221338533.png?ex=693ba13b&is=693a4fbb&hm=d2cfe8f54066a7fe0930687ebccc6df8f7643d20eed7bf789a94284346df5ed3&)
+Odyssey duo ![image](https://cdn.discordapp.com/attachments/973939579348451388/1448358517277982742/Untitled71_202511221338533.png?ex=695fe27b&is=695e90fb&hm=2551166fcd3c3cfa9500d50d9f4cbe1e6aac59c178d2b8a695bf9cc913a7b8f2&)
 
 >(I dont have arts of others yet]
 
