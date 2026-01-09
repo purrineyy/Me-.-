@@ -42,3 +42,5 @@ Funhouse duo
 Killerbunny duo
 
 Devotion duo
+
+Daisygrove duo
